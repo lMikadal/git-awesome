@@ -1,1 +1,1 @@
-Hello, KBTG Gampus
+Hello, KBTG Kampus
